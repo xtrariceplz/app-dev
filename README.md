@@ -1,6 +1,6 @@
 # My Favorite Series: *Breaking Bad*
 
-![Breaking Bad Poster](https://upload.wikimedia.org/wikipedia/en/6/61/Breaking_Bad_title_card.png)
+
 
 ---
 
